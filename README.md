@@ -4,3 +4,6 @@
 
 - 🔗 [ONLY PISTOL CHALLENGE in ROBLOX RIVALS!!](https://www.youtube.com/watch?v=RmCk_U-P2M4)
 🇬🇷 [ΜΟΝΟ ΠΙΣΤΟΛΙ CHALLENGE στο ROBLOX RIVALS!!]
+
+- 🔗 [This HOLE has a SECRET!](https://www.youtube.com/watch?v=dQJteDEN3eA)
+🇬🇷 [Αυτή η ΤΡΥΠΑ έχει ένα ΜΥΣΤΙΚΌ!]
